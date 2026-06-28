@@ -1,4 +1,4 @@
-# 
+# Instantâneo Adobe Acrobat Pro extensões para Mac OS | Avançado Adobe Acrobat Pro extensões para PC Windows. Com verificação de erros e estimativa de reembolso — otimizado para máximo desempenho em cada plataforma.
 
 
 
